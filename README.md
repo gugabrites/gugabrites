@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gugabrites
+- 👀 I’m interested in Engineering
+- 🌱 I’m currently learning French
+- 💞️ I’m looking to collaborate on anything, feel free to contact me
+- 😄 Pronouns: He/him
